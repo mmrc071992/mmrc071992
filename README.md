@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @mmrc071992
 - 👀 I’m interested in naps and challenges
-- 🌱 I’m currently learning how to wormsit
+- 🌱 I’m currently learning how to survive in a rural area as a freelancer
 - 💞️ I’m looking to collaborate on sustainability projects
 - 📫 How to reach me? Send a dove.
 - ⚡ Fun fact: I'm tiny and I love it.
